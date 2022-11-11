@@ -8,3 +8,4 @@ Das weiss ich vielleicht nach dem Mittagessen ;-)
 - MC' Donalds
 - HalliGalli
 - la esquina
+- Migros-Restaurant
