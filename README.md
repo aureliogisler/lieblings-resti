@@ -2,4 +2,8 @@
 
 In folgender Liste sind die Lieblingsrestis der "xippos"
 
-HalliGalli
+Das weiss ich vielleicht nach dem Mittagessen ;-) 
+
+- test
+- MC' Donalds
+- HalliGalli
